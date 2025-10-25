@@ -4,8 +4,8 @@ e-Kréta bővítmény
 
 Még fejlesztés alatt!
 
-*Hamarosan a Firefoxon...*
+*Már elérhető firefoxon!*
 
 ExtenderTeam 2025 - reKréta bővítmény made with ❤
 
-E-Mail: extenderteam@zw.hu
+E-Mail: extenderteam@dos.hu
