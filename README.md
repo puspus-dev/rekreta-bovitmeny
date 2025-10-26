@@ -8,4 +8,4 @@ Még fejlesztés alatt!
 
 ExtenderTeam 2025 - reKréta bővítmény made with ❤
 
-E-Mail: extenderteam@dos.hu
+E-Mail: extenderteam@zw.hu
